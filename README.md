@@ -1,6 +1,6 @@
 # 🚀 BLACK TRAP 
 
-![Black Trap Banner](https://imgur.com/a/BZdUnbE)
+![Black Trap Banner]([https://imgur.com/a/BZdUnbE](https://www.dropbox.com/scl/fi/2pxlkinxtar2bsgzgtp8o/Purple-and-White-Simple-Page-Border-Double-Sided-Poster-A3-Landscape.gif?rlkey=yvqpce3fytq1hf1tjg1ncowt5&st=8hc7mq8y&dl=0))
 
 ---
 
