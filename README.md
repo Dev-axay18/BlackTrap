@@ -1,6 +1,6 @@
 #  BLACK TRAP 
 
-![Black Trap Banner](https://www.dropbox.com/scl/fi/2pxlkinxtar2bsgzgtp8o/Purple-and-White-Simple-Page-Border-Double-Sided-Poster-A3-Landscape.gif?raw=1)
+![Black Trap Banner](https://www.dropbox.com/scl/fi/2pxlkinxtar2bsgzgtp8o/Purple-and-White-Simple-Page-Border-Double-Sided-Poster-A3-Landscape.gif)
 
 ---
 
